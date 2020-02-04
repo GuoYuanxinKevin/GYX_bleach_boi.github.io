@@ -1,1 +1,1 @@
-gyx_bleach_boi.github.io
+guoyuanxinkevin.github.io/GYX_bleach_boi.github.io/
